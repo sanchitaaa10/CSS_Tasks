@@ -28,3 +28,7 @@ TASK 9
 
 TASK 10
 ![Screenshot 2025-04-21 at 10 18 40 PM](https://github.com/user-attachments/assets/a7e9d08c-037c-4b0e-a21f-c80ba988db1b)
+
+
+Homework Day 3
+![Screenshot 2025-04-21 at 10 42 51 PM](https://github.com/user-attachments/assets/662a0652-eb85-46cc-82a6-1c1717943b13)
